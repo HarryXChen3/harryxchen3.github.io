@@ -1,2 +1,2 @@
-# HarryXChen3.github.io
+# harryxchen3.github.io
 A page of sorts, I guess.
